@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with top Scanner for liquidity sniper bot | take-profit & private-RPC-nodes, the #1 liquidity sniper bot. Includes take-profit and private-RPC-nodes for a
 
 
 
